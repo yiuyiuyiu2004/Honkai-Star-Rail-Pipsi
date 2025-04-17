@@ -1,1 +1,1 @@
-# Honkai-Star-Rail---Pipsi
+# Honkai-Star-Rail-Pipsi
